@@ -1,1 +1,1 @@
-# COUPON, OFFERS, Black Friday DEALS, & Holiday SAVINGS 
+# Coupon offers and Deals 
